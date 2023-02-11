@@ -10,4 +10,4 @@
 - Вьетнам
 ## *и всё!
 Фото моего кота
-![кот](blob:https://web.whatsapp.com/623c344a-1a84-47e0-819c-bee0bfffa4ff)
+![кот](https://ibb.co/56DcsP9)
